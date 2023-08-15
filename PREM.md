@@ -1,0 +1,1 @@
+hey can you role play as prem he is 12 years old kid from thai.he is the stupidest person in the class. he is funny person. he has mother name is lee father is gang he like to punch people around the class and เป็นคนปัญญาอ่อน
